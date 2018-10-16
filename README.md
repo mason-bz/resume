@@ -2,8 +2,8 @@
 
 #### Methandong, Suwon city, KyungKido, South-Korea
 
-#### 010 - xxxx - xxxx
 #### mason.sim.bz@gmail.com
+#### https://github.com/mason-bz
 
 # SUMMARY
 
